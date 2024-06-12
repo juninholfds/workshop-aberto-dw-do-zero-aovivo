@@ -1,1 +1,1 @@
-# workshop-aberto-dw-do-zero-aovivo
+# Estamos ao vivo
